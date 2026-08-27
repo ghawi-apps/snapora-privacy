@@ -94,4 +94,4 @@ Any updated version will be published on this page with a revised effective date
 If you have questions about this Privacy Policy or Snapora's privacy practices, contact:
 
 **Ghawi Apps**  
-**Gmail: alghawi.support@gmail.com 
+**Email: alghawi.support@gmail.com 
